@@ -2,7 +2,7 @@
 
 > _À travers les murs_
 >
-> **Artiste-auteure** · Actuellement en formation chez **Cyberini**.
+> **Artiste-auteure** · Actuellement en formation chez [**Cyberini**](https://cyberini.com/).
 
 ## Projets
 
